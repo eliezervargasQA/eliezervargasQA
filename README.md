@@ -34,6 +34,6 @@ Neste repositório principal, você encontrará minha atuação ponta a ponta:
 Estou aberto a oportunidades, networking e troca de conhecimentos.
 
 * **LinkedIn:** [Insira o link do seu LinkedIn aqui]
-* **E-mail:** [Insira seu e-mail profissional aqui]
+* **E-mail:** eliezervargas74@gmail.com
 
 > *"A qualidade nunca é um acidente; é sempre o resultado de um esforço inteligente."*
